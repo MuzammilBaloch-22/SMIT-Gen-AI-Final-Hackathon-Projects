@@ -1,0 +1,1 @@
+# SMIT-Gen-AI-Final-Hackathon-Projects
